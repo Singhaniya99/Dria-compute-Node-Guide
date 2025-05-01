@@ -74,7 +74,7 @@ https://dria.co/edge-ai
 https://form.typeform.com/to/Eav42hR3?typeform-source=www.google.com
 
 
-👉 **Join TG for more Updates:** https://telegram.me/cryptogg
+👉 **Join TG for more Updates:** https://t.me/+kamRWpadSgc0NWY1
 
 Thank U❤️
 
