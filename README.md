@@ -57,7 +57,7 @@ Succesfull logs Should Looks Like-👇
 sudo dkn-compute-launcher referrals
 ``` 
 
-Use Up - down Keys to select "Enter referral code to be referred" and Enter The Refer Code-👇
+Use Up - down Keys to select "Enter referral code to be referred" and Enter The Refer Code-👇     Yv2xRjHcdPwi2SPEKaGv
 
  ```
  U can Use Other Users Refer Code
